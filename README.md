@@ -2,7 +2,6 @@
 
 ---
 
-<details><summary>终</summary><b>还是有点舍不得 真的有点舍不得</b></details>
 
 ![ovo](https://user-images.githubusercontent.com/77325379/166110057-30bb56c2-3d10-420d-ac04-08cd77b1ed91.png)
 
